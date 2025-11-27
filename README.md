@@ -1,1 +1,1 @@
-![Nyan Cat](https://media.giphy.com/media/sIIhZliB2McAo/giphy.gif)
+![Mikasa sleep](./photo_2025-11-27_16-05-28.jpg)
